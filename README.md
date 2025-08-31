@@ -3,7 +3,7 @@
 - 🚀 Obsessed with **AI, Digital Marketing, and Finance** — basically how the world runs and where it’s heading.  
 - 🌱 Always leveling up my skills in **AI & Development**, because why stay basic when tech can make life smarter?  
 - 🤝 I love building crazy projects with friends & teams who share the same wild imagination ✨  
-- 📫 Find me everywhere as **@thclassixs** (yep, I’m that consistent).  
+- 📫 Find me everywhere as **@thclassixs**.  
 - ⚡ Motto: **Keep growing, keep creating, keep pushing limits.**
 
 <!---
